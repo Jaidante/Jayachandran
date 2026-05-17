@@ -1,1 +1,1 @@
-Jaidante.github.io/Jayachandran
+Jaidante.github.io/Jayachandran/

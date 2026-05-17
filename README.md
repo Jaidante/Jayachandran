@@ -1,1 +1,1 @@
-https://jayachandran.github.io/
+jayachandran.github.io

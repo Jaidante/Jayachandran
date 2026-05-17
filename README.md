@@ -1,1 +1,1 @@
-# https://jaidante.github.io/Jayachandran/
+jayachandran.github.io
